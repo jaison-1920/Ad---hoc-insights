@@ -76,7 +76,7 @@ Special thanks to **Dhaval Patel**, **Hemanand Vadivel**, and the **Codebasics**
 
 ## 📬 Contact
 
-Feel free to connect with me on [LinkedIn](https://www.linkedin.com) or drop a message if you have any questions!
+Feel free to connect with me on [LinkedIn](www.linkedin.com/in/jaison-philip) or drop a message if you have any questions!
 
 ---
 
